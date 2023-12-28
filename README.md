@@ -1,0 +1,1 @@
+# https-www.kuyhaa-me.com-adobe-photoshop-lightroom-classic-2022-full-2.html
